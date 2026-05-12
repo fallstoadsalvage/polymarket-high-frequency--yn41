@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with elite Polymarket Addon | price-monitoring + custom-strategies, the #1 addon. Includes price-monitoring and custom-strategies for a smoother
 
 
 
